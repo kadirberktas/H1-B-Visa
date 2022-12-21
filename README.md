@@ -52,3 +52,9 @@ We can see, US need to employee for their tech sector.
 ![image](https://user-images.githubusercontent.com/78299757/208981498-3d97265c-912e-4ec0-a084-ea8ffea265f0.png)
 Those companies are sponsoring employee from different country's person. And that is graph.
 
+RESULT:
+
+That is your choice which side you re gonna live in US but i am sure you are gonna get high salaries in there. But east side higher salary than west side. And US really need to employee for growing but for their tech sector. If you are really good at your major especially tech sector, you could easily find job and get H1-B visa. So you can live dream country like US. They are really open for that. 
+
+Thanks for timing, see you next analysis..
+
