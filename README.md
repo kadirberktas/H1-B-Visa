@@ -37,3 +37,15 @@ Verdict: New York is safer and will only get safer now that Bill de Blasio is ou
 According to (https://propertyclub.nyc/article/living-in-la-vs-living-in-nyc)
 
 Actually It depends what style life you want. I mean In my opinion LA best fit for me but that's for me. Because of my life style. 
+
+
+Maybe because of the salaries? Lets see;
+![image](https://user-images.githubusercontent.com/78299757/208979348-bde6b385-6957-4581-b567-76596699453d.png)
+
+The highest wage from NYC so east side.(We based NYC for east side)
+
+![image](https://user-images.githubusercontent.com/78299757/208980096-6e876669-ba2c-481d-8e23-3135c6ed7c74.png)
+
+We can see, US need to employee for their tech sector.
+
+
