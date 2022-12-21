@@ -49,3 +49,6 @@ The highest wage from NYC so east side.(We based NYC for east side)
 We can see, US need to employee for their tech sector.
 
 
+![image](https://user-images.githubusercontent.com/78299757/208981498-3d97265c-912e-4ec0-a084-ea8ffea265f0.png)
+Those companies are sponsoring employee from different country's person. And that is graph.
+
