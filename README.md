@@ -56,7 +56,7 @@ VERDICT:
 
 That is your choice what side you re gonna live in US but i am sure you are gonna get high salaries in there. But east side higher salary than west side. LA's weather is better than NYC and LA's cost of living is better than NYC etc. But you need to comprise above situations for yourself. My choice is definitely West Side. 
 
-US really need to employee for growing but for their tech sector. If you are really good at your major especially tech sector, you could easily find job and get H1-B visa. So you can live dream country like US. They are really open for that. 
+US really need to employee for growing but for their tech sector. If you are really good at your major especially tech sector, you could easily find job and get a H1-B visa. So you can live dream country like US. They are really open for that. 
 
 Thanks for timing, see you next analysis..
 
